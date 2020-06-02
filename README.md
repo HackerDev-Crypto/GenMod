@@ -8,5 +8,6 @@
 <p>6. Play and Win! </p>
 <p>_________________</p>
 <u><h3><a href="https://greasyfork.org/en/scripts/404506-moomoo-io-genmod-moomoo-io-new">Click here!</a></u><p>to direct install </p></h3>
+<IMG SRC="i.imgur.com/plzE8WK.png"></a> </img>
 <h1>________________</h1>
 <u><a href="https://discord.gg/zFNCJQp">Discord!</a></u>
